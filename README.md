@@ -1,5 +1,5 @@
 
-### Hi, I'm Sara Azevedo 👋
+### Hi, I'm Sara 👋
 
 I am a Informatics and Computing Engineering student at Faculty of Engineering of the University of Porto.
 
